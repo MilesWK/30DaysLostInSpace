@@ -1,4 +1,4 @@
-# [InventrKits: 30 Days Lost in Space Adventure Kit](https://www.inventr.io/sale)
+# [CraftingTable Kits: 30 Days Lost in Space Adventure Kit](https://www.inventr.io/sale)
 
 *Your 30 Day Coding And Circuits Challenge To Bring You From Beginner To Builder*
 
